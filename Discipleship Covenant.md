@@ -4,12 +4,14 @@ I will ensure that everything shared in the Dgroup stays only within the Dgroup.
 
 ## Honesty
 I will open and honest with my Dleader and fellow members
-	*(Proverbs 12:22 - The Lord detests lying lips, but he delights in those who tell the truth)*
+	(Proverbs 12:22 - The Lord detests lying lips, but he delights in those who tell the truth)*
 
 ## Respect
 I will respect my Dgroup by regularly attending and participating in Dgroup meetings. I will honor my Dleader and area pastor.
-	* (Philippians 2:4 - Don’t look out only for your own interests, but take an interest in others, too).*
-	  * (Hebrews 13:17 -  Obey your spiritual leaders, and do what they say. Their work is to watch over your souls, and they are accountable to God. Give them reason to do this with joy and not with sorrow. That would certainly not be for your benefit.)*.
+
+	*(Philippians 2:4 - Don’t look out only for your own interests, but take an interest in others, too).*
+	
+	*(Hebrews 13:17 -  Obey your spiritual leaders, and do what they say. Their work is to watch over your souls, and they are accountable to God. Give them reason to do this with joy and not with sorrow. That would certainly not be for your benefit.)*.
    
 ## Intercession
 I will regularly pray for my Dleader and fellow members.
