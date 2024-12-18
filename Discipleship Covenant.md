@@ -1,6 +1,7 @@
 ## Confidentiality 
 I will ensure that everything shared in the Dgroup stays only within the Dgroup.
-	*(Proverbs 11:13 - A gossip goes around telling secrets, but those who are trustworthy can keep a confidence)*
+
+*(Proverbs 11:13 - A gossip goes around telling secrets, but those who are trustworthy can keep a confidence)*
 
 ## Honesty
 #### I will open and honest with my Dleader and fellow members.
@@ -16,7 +17,8 @@ I will ensure that everything shared in the Dgroup stays only within the Dgroup.
    
 ## Intercession
 #### I will regularly pray for my Dleader and fellow members.
-	*(Ephesians 6:18 - Pray in the Spirit at all times and on every occasion. Stay alert and be persistent in your prayers for all believers everywhere)*
+
+*(Ephesians 6:18 - Pray in the Spirit at all times and on every occasion. Stay alert and be persistent in your prayers for all believers everywhere)*
 	
 ## Spiritual Growth
 #### I have no other purpose for joining a Dgroup except to grow spiritually and help others do the same.  
